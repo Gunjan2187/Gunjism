@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gunjan2187
+- 👋 Hi, I’m @Gunjism
 - 👀 I’m interested in Typeface deisgn.
 - 🌱 I’m currently learning Typeface deisgn.
 - 💞️ I’m looking to collaborate on Typeface deisgn.
